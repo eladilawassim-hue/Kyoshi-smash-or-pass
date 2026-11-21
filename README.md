@@ -1,0 +1,1 @@
+# Kyoshi-smash-or-pass
